@@ -1,5 +1,5 @@
 # 💫 About Me:
-## こんにちは。私はSergeyです。 <br>I am a 3rd year student in a provincial town in Russia. <br>I am studying to be a programmer and trying to learn different programming languages. <br>I love Japanese culture and am trying to learn Japanese.<br>My TG: @Ndrdndr
+## こんにちは。私はSergeyです。 <br>I am a 3rd year student in a provincial town in Russia. <br>I am studying to be a programmer and trying to learn different programming languages. <br>I love Japanese culture and am trying to learn Japanese.<br>
 
 
 ## 🌐 Socials:
